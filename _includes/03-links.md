@@ -1,1 +1,1 @@
-[https://github.com/No-Manz-Sky]
+[GitHub](https://github.com/No-Manz-Sky)
